@@ -17,3 +17,6 @@ Claim: I think working in a virtual store for real money is a good idea for the 
 # September 2, 2025
 i used AI
 Before starting this course, I believed computer science was exclusively about writing complex code for finished software, like building games or mobile apps (Claim). My view has already begun to change, as the class has focused heavily on the foundational logic of computing and computational thinking rather than just programming syntax (Evidence). For instance, our deep dive into binary logic and algorithm efficiency demonstrated that CS is more about how computers fundamentally process information and solve problems than what the final product looks like (Evidence). This shift proves that computer science is truly a skill for organized problem-solving and abstraction, which is vital for many fields beyond technology (Reasoning). By focusing on these core concepts, I hope to gain a versatile, logical mindset that can be applied to solving problems efficiently in math, science, and even everyday life (Reasoning).
+# October 27, 2025 
+i used AI
+if i could imvent a new technology it would be a portable solar powered early warning system. this device would use a network of senseors to detect changes in weather patterns,patterns ground movement, and 
