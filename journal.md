@@ -34,3 +34,9 @@ Technology has already made a big difference in other areas like online shopping
 | Marla    |    first   |  35B    |
 
 ----
+ # December 1, 2025
+ One job that uses drones is a drone pilot. Drone pilots fly drones to take pictures, make maps or inspect areas. programmers help by creating software that controls how drones fly and collect data. in texas, drone pilots can make around 50,000 to 75,000 a year. This job requires an FAA part 107 license. i would like this job becuase it uses technology and i would make alot of money.
+ # December 8, 2025
+ A self driving car might fail to stop for a school bus if its cameras or sensors do not clearly detect the stop arm or flashing lights. poor lighting, weather, or blocked views can make it harder for ai to recognize the bus. sofware errors can also cause the car to respond slow. one challenge is making sure ai understand bus rules. to improve saftey cars should use better cameras better sensors and emergency stop near buses would help protect people.
+ # December 15, 2025
+ my plans for winter break is 7v7 tournements, hanging out with my friends go outta town to see my family and my cousins.
