@@ -40,3 +40,5 @@ Technology has already made a big difference in other areas like online shopping
  A self driving car might fail to stop for a school bus if its cameras or sensors do not clearly detect the stop arm or flashing lights. poor lighting, weather, or blocked views can make it harder for ai to recognize the bus. sofware errors can also cause the car to respond slow. one challenge is making sure ai understand bus rules. to improve saftey cars should use better cameras better sensors and emergency stop near buses would help protect people.
  # December 15, 2025
  my plans for winter break is 7v7 tournements, hanging out with my friends go outta town to see my family and my cousins.
+# January 29, 2026
+The test i took was the reading 2,test and I feel like performed good because one thing i did well was not sleep during the test as much but i struggled with getting off track on test I think tesgt prep would help because it could help you during the test i havent reached my goal score, my next step is to lock in and pass.
