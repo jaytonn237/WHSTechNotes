@@ -42,3 +42,5 @@ Technology has already made a big difference in other areas like online shopping
  my plans for winter break is 7v7 tournements, hanging out with my friends go outta town to see my family and my cousins.
 # January 29, 2026
 The test i took was the reading 2,test and I feel like performed good because one thing i did well was not sleep during the test as much but i struggled with getting off track on test I think tesgt prep would help because it could help you during the test i havent reached my goal score, my next step is to lock in and pass.
+# February 2, 2026
+what it means to behave professionally in shared spaces such as classrooms is to not talk when the teacher is talking, dont be disrepectfull to another, and get work done.
