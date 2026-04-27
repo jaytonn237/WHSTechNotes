@@ -46,3 +46,5 @@ The test i took was the reading 2,test and I feel like performed good because on
 what it means to behave professionally in shared spaces such as classrooms is to not talk when the teacher is talking, dont be disrepectfull to another, and get work done.
 # april 20, 2026
 free day
+# april 27, 2026
+technology played a part in my day yesterday when i was playin bo7 on my el cinco my p5 it involved by powering my monitor on and downloading games connecting my controller to my p5 this matters because if i didnt have technology i wouldnt be able to play cod or anygames. 
