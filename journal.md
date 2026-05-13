@@ -48,3 +48,5 @@ what it means to behave professionally in shared spaces such as classrooms is to
 free day
 # april 27, 2026
 technology played a part in my day yesterday when i was playin bo7 on my el cinco my p5 it involved by powering my monitor on and downloading games connecting my controller to my p5 this matters because if i didnt have technology i wouldnt be able to play cod or anygames. 
+# may 7, 2026 
+when i use tools like Ai it helps me with data i need n it helps AI with providing it with what it needs like everyday in class we have a journal that we have to lable the date so it helps my teacher get the right data she needs to help make the system better for us which Ai does with out us knowing 
